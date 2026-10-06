@@ -13,3 +13,15 @@ https://www.youtube.com/shorts/u1R8vEVNvJk
 
 
 https://www.youtube.com/shorts/qUAXPhuKnYI
+
+
+https://www.tiktok.com/@powerofmind69/video/7690209832585989398?is_from_webapp=1&sender_device=pc
+
+
+https://www.tiktok.com/@onthewaytosuccess5/video/7689458644643007752?is_from_webapp=1&sender_device=pc
+
+
+https://www.tiktok.com/@aura.motivation8/video/7692735682338376993?is_from_webapp=1&sender_device=pc
+
+
+https://www.tiktok.com/@psstwatchme/video/7686865003109977362?is_from_webapp=1&sender_device=pc
