@@ -25,3 +25,20 @@ https://www.tiktok.com/@aura.motivation8/video/7692735682338376993?is_from_webap
 
 
 https://www.tiktok.com/@psstwatchme/video/7686865003109977362?is_from_webapp=1&sender_device=pc
+
+
+https://www.tiktok.com/@powerofmind69/video/7689800960708726038?is_from_webapp=1&sender_device=pc
+
+
+https://www.tiktok.com/@aimanrandhawa180/video/7692723288673438998?is_from_webapp=1&sender_device=pc
+
+
+https://www.tiktok.com/@aura.motivation8/video/7693453825998392609?is_from_webapp=1&sender_device=pc
+
+
+https://www.tiktok.com/@princessw192/video/7691359739220954376?is_from_webapp=1&sender_device=pc
+
+
+https://www.tiktok.com/@aura.motivation8/video/7691385880564469025?is_from_webapp=1&sender_device=pc
+
+https://www.tiktok.com/@aura.motivation8/video/7691006156331879712?is_from_webapp=1&sender_device=pc
