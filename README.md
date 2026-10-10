@@ -61,3 +61,10 @@ aur tum kia yeh pyaar wiaar k chaker mai per gayi, pehly kuch ban tu jao
 
 
 pehly Aqsa confirm kero ye github account public tu nahi, aur aisa waisa kuch nahi jaisa tum soach rahi hoon
+
+
+mai ye account share nahi kia kabi kisi k saath, is account ka pata sirf mujy aur tumhy hai
+
+achi baat hai, abi sirf focous on your study, aur aisi reels b na dekho
+
+
