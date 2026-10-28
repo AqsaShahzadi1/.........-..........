@@ -83,7 +83,40 @@ nai abi sirf baat chal rahi hai
 tum hi tu keh rahi thi k un logo ny sari condition accept kerli hai, even abroad study wali b
 
 
-haan, chances tu buhat high hai, wo tu kisi soorat mai peechy hat ny waly nahi hai
+haan, chances tu buhat high hai engagment k, lakin abi b 3 weeks remaining hai confirm nai shayad koi aur rishta aajy, wo tu kisi soorat mai peechy hat ny waly nahi hai
 
 
-mujy q lag raha k tum interested nai ho
+mujy q lag raha k tum interested nai ho, aur jo pehly rishta aya tha uss ka kia bana
+
+
+of course! yar abi mai 20 ki hoon , wo b abi september mai hui hoon, han uss rishty k kam chances hai, because wo place humy pasand naii
+
+theek, 20 ki ho tu kia hua tum tu keh rahi thi k unhoo ny ye baat b maan li 5 years baad marriage wali
+
+hmm, bro, but...  maray pass ab koi b reason nai iss ko post pone ker ny ki
+
+
+tum mujy bro mat koho, sister b keh sakhki ho, sumaira ki shaadi per ja rahi ho
+
+
+pata nai, aik tu bai nai maan rahy aur doosra mera dil b gabra raha hai pata nai q
+
+
+chali jana uss ny itna insist kia hai tum ko, aur tum tu us ki best friend ho
+
+dekho gi
+
+
+aur tumhari kab shaadi ho rahi hai
+
+next year
+
+hmm, happy ho, love marriage hai na iss liy
+
+
+yeah
+
+
+Allah Pak tum ko hamesha happy rakhy (Ameen)
+
+Ameen!
