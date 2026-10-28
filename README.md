@@ -117,6 +117,6 @@ hmm, happy ho, love marriage hai na iss liy
 yeah
 
 
-Allah Pak tum ko hamesha happy rakhy (Ameen)
+Allah Pak tum ko (and all my friends) hamesha happy rakhy (Ameen)
 
 Ameen!
