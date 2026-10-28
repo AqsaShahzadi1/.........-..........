@@ -81,3 +81,8 @@ nai abi sirf baat chal rahi hai
 
 
 tum hi tu keh rahi thi k un logo ny sari condition accept kerli hai, even abroad study wali b
+
+
+haan, chances tu buhat high hai, wo tu kisi soorat mai peechy hat ny waly nahi hai
+
+
