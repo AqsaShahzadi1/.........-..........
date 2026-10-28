@@ -78,3 +78,6 @@ Aqsa tumhari engagment fix ho rahi hai, is baat ki
 
 
 nai abi sirf baat chal rahi hai
+
+
+tum hi tu keh rahi thi k un logo ny sari condition accept kerli hai, even abroad study wali b
